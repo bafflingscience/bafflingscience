@@ -1,4 +1,14 @@
-### Hi there 👋
+### h e L L o  👋🏼
+
+w e L c o m e,
+
+*to a very ✨ _special_ ✨ repository*
+
+<br>
+
+with 💕 L o v e 💕 
+
+d A v e
 
 <!--
 **bafflingscience/bafflingscience** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
